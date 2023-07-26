@@ -1,0 +1,2 @@
+- 👋 oi, meu nome é Carolina
+- 🌱 estou no ensino médio
